@@ -1,0 +1,1 @@
+# 2024_Yazilim_Gelistirici_Yetistirme_Kampi_Engin_Demirog
